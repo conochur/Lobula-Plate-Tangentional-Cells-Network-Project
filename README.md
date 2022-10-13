@@ -1,1 +1,1 @@
-# NeuPrint-Network-Project
+# Lobula-Plate-Tangentional-Cells-Network-Project
